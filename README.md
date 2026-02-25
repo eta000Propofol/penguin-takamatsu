@@ -1,2 +1,3 @@
 # penguin-takamatsu
-這個東西也是只有神人才想得出來了，不用給我star了，發這個純報復社會的
+warning:運行前請調低音量，本人對因此造成的人身傷害概不負責  
+muhehehehehehehehehe
